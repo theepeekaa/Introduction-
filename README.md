@@ -1,4 +1,4 @@
 **Hi There** 👋
 👧 I'm Theepeekaa
 📖 I'm doing my master's in Management Information Systems
-I come from 🇮🇳
+I come from India
